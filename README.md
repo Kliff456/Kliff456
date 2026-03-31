@@ -3,7 +3,7 @@ ____
 ## I'm a student at the Polar State University,I'm also trying to force myself to learn 3D modeling😢,and I like cats😺
 ____
 ## How to reach me📫📱
-[![](https://avatars.mds.yandex.net/i?id=dee4718a43cd74efb612689f2d5bcc916d2c6b1a-15259662-images-thumbs&n=13)](t.me/Kost4242)
+[![](https://avatars.mds.yandex.net/i?id=dee4718a43cd74efb612689f2d5bcc916d2c6b1a-15259662-images-thumbs&n=13)](https://t.me/Kost4242)
 ____
 ## I'm learning programming languages
 ![](https://avatars.mds.yandex.net/i?id=3725bee4983826d24257ac1339669e301bf8aad4-10113980-images-thumbs&n=13)
