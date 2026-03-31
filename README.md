@@ -1,6 +1,6 @@
 # Hi there,My name is Kostya👋
 ____
-## I'm a student at the Polar State University,I'm also trying to force myself to learn 3D modeling,and I like cats😺
+## I'm a student at the Polar State University,I'm also trying to force myself to learn 3D modeling😢,and I like cats😺
 ____
 ## How to reach me📫📱
 [![](https://avatars.mds.yandex.net/i?id=dee4718a43cd74efb612689f2d5bcc916d2c6b1a-15259662-images-thumbs&n=13)](t.me/Kost4242)
